@@ -8,5 +8,5 @@
  
  📫 How to reach me antonyakim7771@gmail.com 
  
- ⚡ Fun fact: On every continent there is a city called Rome.
+ ⚡ Fun fact: There is only one river in Antarctica - the Onyx, which flows only 60 days a year.
  
